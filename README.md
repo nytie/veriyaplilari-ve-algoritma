@@ -1,0 +1,1 @@
+# veriyaplilari-ve-algoritma
